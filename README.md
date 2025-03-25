@@ -7,4 +7,5 @@
 **JOIN DISCORD FOR MORE MODS:**
 https://discord.gg/Pbgthgxa8H
 
-![image](https://github.com/user-attachments/assets/e2e6a45d-90b5-4e17-8b46-5d7cb5d90663)
+![image](https://github.com/user-attachments/assets/34de5891-63a7-4e8a-96b4-d47221e301c3)
+
